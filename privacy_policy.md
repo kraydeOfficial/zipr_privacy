@@ -41,4 +41,4 @@ We may update this privacy policy from time to time. If we make material changes
 
 Contact Us
 
-If you have any questions or concerns about our privacy policy, please contact us at support@krayde.com.
+If you have any questions or concerns about our privacy policy, please contact us at info@wincosystems.com
